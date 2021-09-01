@@ -11,3 +11,7 @@ Dale una oportunidad, ¡pruébala y compártela!
 
 Android:
 https://play.google.com/store/apps/details?id=desarrollosaceone.ExcelBasico
+
+NOTA: +600 instalaciones al mes. 
+
+¡Por algo debe ser!
